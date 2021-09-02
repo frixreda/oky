@@ -1,1 +1,1 @@
-# okyanime
+# oky
